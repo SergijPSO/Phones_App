@@ -1,3 +1,3 @@
-Link to GitHub pages https://ozirnarita.github.io/Phone_app_jan19/
+Link to GitHub pages https://sergijpso.github.io/Phone_app_jan19/
 
 
